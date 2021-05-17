@@ -1,0 +1,2 @@
+- 👋 Olá, como vai?
+- me chamo Kauã
